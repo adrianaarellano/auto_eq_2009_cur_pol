@@ -1,0 +1,1 @@
+# auto_eq_2009_cur_pol
